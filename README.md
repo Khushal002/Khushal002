@@ -71,8 +71,8 @@
 
 ## 🤝 Connect With Me
 
-* 💼 LinkedIn: (add your LinkedIn link)
-* 📧 Email: (add your email)
+* 💼 LinkedIn: 
+* 📧 Email: https://mail.google.com/mail/u/0/#inbox
 
 ---
 
